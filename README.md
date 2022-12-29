@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iamegg3
+- 👋 Hi, I’m Maggie (iamegg is Maggie rearranged)
 - 👀 I’m interested in food, tv shows, travelling
 - 🌱 I’m currently learning how to code
 - 📫 How to reach me: https://www.linkedin.com/in/dingmaggie/
